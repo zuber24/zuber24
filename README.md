@@ -77,7 +77,8 @@ completed Full Stack development using MERN 😍
 MSc, Information Technology ⚙ 
   
 
-WEB INTERNEE AT SYANISBIZ.COM💻  
+“Web Design” Tatva 2K19 Event Competition organized by University 
+Department of Management Science💻  
   
 
 Participated as a volunteer in “University Level Avishkar🙌  
