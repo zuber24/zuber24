@@ -7,6 +7,8 @@
 ### <div align="center">I'm Zuber , a Front end web developer 👨‍💻   🚀</div>  
   
 
+- 🌱 I’m currently working jr. nodejs developer
+
 - 🔭 6 month internship Front End Developer in Addvic Technology , Pune😇😇  
   
 
